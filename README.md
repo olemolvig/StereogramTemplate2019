@@ -1,0 +1,1 @@
+# StereogramTemplate2019
